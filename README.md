@@ -1,0 +1,6 @@
+- ECUST - School of Mechanical and Power Engineering
+- 华东理工大学 机械与动力工程学院 大一在读
+- Weibo @Verso_X
+- E-Mail 1140070113@qq.com
+- 知乎 @Verso_X
+- （所有社媒都不咋更新
